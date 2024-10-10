@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de IngridMSDias 😁
+## Bem-vindo(a) ao perfil de IngridMSDias 😊
 
  <div>
    <a href="https://github.com/IngridMSDias">
